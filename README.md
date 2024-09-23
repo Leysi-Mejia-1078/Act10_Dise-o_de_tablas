@@ -2,4 +2,5 @@
 
 Joyeria "Brillo Real"
 
-![img](https://github.com/user-attachments/assets/59828a17-3979-4ce5-8a83-d30f1f57c565)
+![img](https://github.com/user-attachments/assets/88280edd-d3ee-4ce7-bd92-594186a21cb7)
+
